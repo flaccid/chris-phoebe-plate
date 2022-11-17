@@ -6,6 +6,8 @@ categories: burgers
 author: "Chris Fordham"
 ---
 
+![Portugal](https://www.travelandleisure.com/thmb/t7LUbPYWRDe_itXi0c9mmS4OYMc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc()/TAL-header-azenhas-do-mar-portugal-PRTGREECE0922-1b53ba0a4b4c4eef999ae4190f7981cd.jpg)
+
 # Ingredients
 
 - 2 Burger Buns
