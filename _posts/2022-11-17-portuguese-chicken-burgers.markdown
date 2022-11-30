@@ -20,7 +20,7 @@ author: "Chris Fordham"
   <i>recommend two different - e.g. gouda and swiss</i>
 - olive oil, pepper, salt
 
-Serve with chips and garlic sauce, on-the-side (optional).
+Serve with shoe-string fries and garlic sauce, on-the-side (optional).
 
 # Method
 
