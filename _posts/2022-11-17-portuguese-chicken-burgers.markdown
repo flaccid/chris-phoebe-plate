@@ -16,10 +16,11 @@ author: "Chris Fordham"
 - [KewPie mayonaise](https://www.woolworths.com.au/shop/productdetails/250311/kewpie-japanese-mayonnaise)
 - iceburg lettuce
 - peri peri sauce - create your [own](https://www.chilipeppermadness.com/chili-pepper-recipes/sauces/peri-peri-sauce/) or use [Oporto](https://www.oporto.com.au/menu/sauces-25g-chilli/) or Nando's Chilli Sauce
-- sliced cheese
+- sliced cheese<br />
+  <i>recommend two different - e.g. gouda and swiss</i>
 - olive oil, pepper, salt
 
-<i>Recommendation</i>: chips and garlic sauce, on-the-side.
+Serve with chips and garlic sauce, on-the-side (optional).
 
 # Method
 
