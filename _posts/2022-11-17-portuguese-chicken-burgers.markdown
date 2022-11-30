@@ -10,25 +10,16 @@ author: "Chris Fordham"
 
 # Ingredients
 
-- Chicken Breast Fillet
-- Burger Buns
-<!--
-  Recommend going for the seeded large commercial buns - Tip Top, Wooloworths, Coles
-https://www.harrisfarm.com.au/products/tip-top-bread-hamburger-rolls-6pk?variant=40251694448699&currency=AUD&utm_medium=product_sync&utm_source=google&utm_content=sag_organic&utm_campaign=sag_organic&gclid=Cj0KCQiAsdKbBhDHARIsANJ6-jeCgLtOiJcymXTka2cug5SSG36QCQ78WuyDO1yafsa3swSsMXE-D4IaAtgUEALw_wcB
--->
-- KewPie Mayonaise
-<!--
- https://www.woolworths.com.au/shop/productdetails/250311/kewpie-japanese-mayonnaise
- -->
-- Iceburg Lettuce
-- Oporto or Nando's Chilli Sauce (peri peri)
-<!--
- https://www.oporto.com.au/menu/sauces-25g-chilli/
- -->
-- Sliced cheese
-- Olive oil, pepper, salt
+- 500g chicken breast fillet
+- burger buns<br />
+  <i>recommend large seeded commercial buns - Tip Top, Woolworths, Coles</i>
+- [KewPie mayonaise](https://www.woolworths.com.au/shop/productdetails/250311/kewpie-japanese-mayonnaise)
+- iceburg lettuce
+- peri peri sauce - create your [own](https://www.chilipeppermadness.com/chili-pepper-recipes/sauces/peri-peri-sauce/) or use [Oporto](https://www.oporto.com.au/menu/sauces-25g-chilli/) or Nando's Chilli Sauce
+- sliced cheese
+- olive oil, pepper, salt
 
-Recommendation: chips and garlic sauce on-the-side.
+<i>Recommendation</i>: chips and garlic sauce, on-the-side.
 
 # Method
 
