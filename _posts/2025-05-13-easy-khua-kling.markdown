@@ -26,16 +26,16 @@ For the pork, use cuts that contain fat, i.e. avoid using lean fillets. I like t
 
 # Method
 
-1. Prepare the lemongrass, finely shaving it with a knife; slice the red chillies diagonal; finely slice the lime leaves after removing the stems
-[![Chopping Board](/assets/images/khua-kling/khua-kling-vege.jpg){: width="350" }](/assets/images/khua-kling/khua-kling-vege.jpg)
-2. Heat a woke to med-high heat, add the curry paste and fry for 5 minutes (mixing with a utensil) or until most moisture is removed and fairly dry
-[![Chopping Board](/assets/images/khua-kling/khua-kling-wok-paste.jpg){: width="350" }](/assets/images/khua-kling/khua-kling-wok-paste.jpg)
-3. Add the minced pork to the wok and stir fry the mixing in the paste repeatedly until well combined, then add sugar (optional)
-[![Chopping Board](/assets/images/khua-kling/khua-kling-wok-mince.jpg){: width="350" }](/assets/images/khua-kling/khua-kling-wok-mince.jpg)
-4. Add the lemongrass then stir fry for another few minutes
-[![Chopping Board](/assets/images/khua-kling/khua-kling-wok-mince-lemongrass.jpg){: width="350" }](/assets/images/khua-kling/khua-kling-wok-mince-lemongrass.jpg)
-5. Add 3/4 of the lime leaves and the sliced chilli, stir fry for another minute or so
-[![Chopping Board](/assets/images/khua-kling/khua-kling-wok-extras.jpg){: width="350" }](/assets/images/khua-kling/khua-kling-wok-extras.jpg)
+1. Prepare the lemongrass, finely shaving it with a knife; slice the red chillies diagonal; finely slice the lime leaves after removing the stems<br />
+[![Chopping Board](/assets/images/khua-kling/khua-kling-vege.jpg){: width="450" }](/assets/images/khua-kling/khua-kling-vege.jpg)
+2. Heat a woke to med-high heat, add the curry paste and fry for 5 minutes (mixing with a utensil) or until most moisture is removed and fairly dry<br />
+[![Chopping Board](/assets/images/khua-kling/khua-kling-wok-paste.jpg){: width="450" }](/assets/images/khua-kling/khua-kling-wok-paste.jpg)
+3. Add the minced pork to the wok and stir fry the mixing in the paste repeatedly until well combined, then add sugar (optional)<br />
+[![Chopping Board](/assets/images/khua-kling/khua-kling-wok-mince.jpg){: width="450" }](/assets/images/khua-kling/khua-kling-wok-mince.jpg)
+4. Add the lemongrass then stir fry for another few minutes<br />
+[![Chopping Board](/assets/images/khua-kling/khua-kling-wok-mince-lemongrass.jpg){: width="450" }](/assets/images/khua-kling/khua-kling-wok-mince-lemongrass.jpg)
+5. Add 3/4 of the lime leaves and the sliced chilli, stir fry for another minute or so<br />
+[![Chopping Board](/assets/images/khua-kling/khua-kling-wok-extras.jpg){: width="450" }](/assets/images/khua-kling/khua-kling-wok-extras.jpg)
 6. Once it is very well-combined and the pork is cooked-through, turn down and reduce further if there is too much moisture (more dry, the better)
-7. Pour into a large serving bowl, then garnish with the remaining sliced lime leaves and birdseye chillies (w/ stems removed)
-[![Chopping Board](/assets/images/khua-kling/khua-kling-served-bowl.jpg){: width="350" }](/assets/images/khua-kling/khua-kling-served-bowl.jpg)
+7. Pour into a large serving bowl, then garnish with the remaining sliced lime leaves and birdseye chillies (w/ stems removed)<br />
+[![Chopping Board](/assets/images/khua-kling/khua-kling-served-bowl.jpg){: width="450" }](/assets/images/khua-kling/khua-kling-served-bowl.jpg)
